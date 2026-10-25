@@ -1,0 +1,2 @@
+# Aulia-ismi
+manusia
